@@ -1,3 +1,2 @@
-# HiddenFiles
-Access to this folder has been set to private. Contact me to discuss access.
-kbmajeed1@gmail.com
+This folder is currently in Private Mode.  
+Contact me to discuss access: mailto:kbmajeed1@gmail.com
